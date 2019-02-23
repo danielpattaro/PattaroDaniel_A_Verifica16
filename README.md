@@ -1,0 +1,1 @@
+PattaroDaniel_A_Verifica16
